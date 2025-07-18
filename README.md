@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mach808
-- 📫 How to reach me https://www.linkedin.com/in/manan-choudhary-7a064a297/
+- 📫 How to reach me www.linkedin.com/in/choudharymanan251105
 - ⚡ Fun fact: I code better while I am asleep. 
 
 
